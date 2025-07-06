@@ -2,6 +2,6 @@
 
 Estudando Front-End
 
-Em busca de uma vaga júnior até 2026
+Em busca de uma vaga júnior em 2026
 
 Veja meus projetos abaixo
